@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-I'm a Software Developer who is committed to self-development and lifetime learning. I'm always active and eager to learn new skills. I believe this way I can consistently achieve better results.I'm a multi-tasking person when handling tasks and can work well under pressure. I try to utilize a creative approach to problem-solving while working in a team or individually, as in my past experiences.
+I'm a Software Developer who is committed to self-development and lifetime learning. I'm always active and eager to learn new skills. I believe this way I can consistently achieve better results. I'm a multi-tasking person when handling tasks and can work well under pressure. I try to utilize a creative approach to problem-solving while working in a team or individually, as in my past experiences.
 
 Also, communication is the most important key to making progress in the software field and I believe that building strong relationships with people delivers the best results.
 
