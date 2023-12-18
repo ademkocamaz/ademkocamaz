@@ -1,6 +1,6 @@
 ## Bağışta Bulunmak İster Misiniz? | Would you like to make a small donation?
 https://ppr.ist/C53BMxuh
-
+patreon.com/ademkocamaz
 
 ### Hi there 👋
 
