@@ -1,6 +1,6 @@
 ## Bağışta Bulunmak İster Misiniz? | Would you like to make a small donation?
-[Papara](https://ppr.ist/C53BMxuh)
-[Buymeacoffee](https://buymeacoffee.com/ademkocamaz)
+[Bağış](https://www.paytr.com/link/e3L5BcB)
+[Donate](https://www.paytr.com/link/e3L5BcB?lang=en)
 
 ### Hi there 👋
 
