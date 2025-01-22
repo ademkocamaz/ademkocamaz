@@ -1,8 +1,4 @@
-## Bağışta Bulunmak İster Misiniz? | Would you like to make a small donation?
-[Bağış](https://www.paytr.com/link/e3L5BcB)
-[Donate](https://www.paytr.com/link/e3L5BcB?lang=en)
-
-### Hi there 👋
+## Hi there 👋
 
 I'm a Software Developer who is committed to self-development and lifetime learning. I'm always active and eager to learn new skills. I believe this way I can consistently achieve better results. I'm a multi-tasking person when handling tasks and can work well under pressure. I try to utilize a creative approach to problem-solving while working in a team or individually, as in my past experiences.
 
